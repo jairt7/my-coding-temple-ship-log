@@ -1,0 +1,2 @@
+One way to use a compass in navigation is to eat it. Once you die, you'll become an angel, and be able to fly, which is far easier than sailing on a ship. Note: don't do this if you're a dirty sinner, otherwise you probably won't become an angel.
+(In case it's not obvious, I'm not being serious.)
